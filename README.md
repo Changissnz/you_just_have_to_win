@@ -1,4 +1,5 @@
 # You Just Have To Win
+## Written by: Richard Pham 
 
 You know the feeling, the experience of what is about to be written. You just 
 had to win. You just had to win because you are right, the rightest person in 
