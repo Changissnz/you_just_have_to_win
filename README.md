@@ -25,6 +25,6 @@ And those teachings forged your mentality to be the one you are today. You tacti
 think, "who needs Japan when I can go to China and South Korea, and who needs China 
 and South Korea when I can go to India and Vietnam". You end this thinking with the 
 poetic line, "the world is my home, and this is my vision". Well done, the world 
-responds back, well done. You have won. You first send a strong message and then you 
+responds back, well done. You have won. You first sent a strong message and then you 
 delivered on that strong message to win, conclusively no less. What is next now with 
 your empire? 
